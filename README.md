@@ -1,3 +1,4 @@
 ### Hi there 👋
 
-![bdf05972-0736-4ef8-a79d-428ae20e15ec](https://github.com/crowravenriko/crowravenriko/assets/139772125/96688993-634e-4097-a976-535d1139819f)
+
+![bc710d4e-375f-4dc1-b269-1e686f086b7c](https://github.com/crowravenriko/crowravenriko/assets/139772125/350e1a6f-ffdf-4f45-8e59-805814095ac1)
