@@ -6,4 +6,4 @@
 
 
 
-![C:\Users\Naggets\Downloads\9d968cba-9d36-4ea6-b256-90341f254547.jpg)
+![blob:https://web.telegram.org/9d968cba-9d36-4ea6-b256-90341f254547).
