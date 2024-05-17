@@ -6,4 +6,5 @@
 
 
 
-![https://web.telegram.org/9d968cba-9d36-4ea6-b256-90341f254547].
+![![9d968cba-9d36-4ea6-b256-90341f254547](https://github.com/crowravenriko/crowravenriko/assets/139772125/bf82f5e9-a914-4b59-9565-39e344dc9fa6)
+].
