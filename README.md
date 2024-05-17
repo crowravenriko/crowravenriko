@@ -5,5 +5,6 @@
 ![](https://64.media.tumblr.com/41dfaa729a9ae0f3f13ec75e982daa2e/d79b386dd434d7d8-82/s250x400/a1f016a472f34942f7844799e68d417b23f9df3e.gifv)
 
 
+![9d968cba-9d36-4ea6-b256-90341f254547](https://github.com/crowravenriko/crowravenriko/assets/139772125/ccbeacf8-0e38-4904-b029-8a3e74d58dcb)
 
-![](https://64.media.tumblr.com/cacf4bdc9dce7849be5a9a661118b320/d3c80e3805ca7023-55/s250x400/36db63a0351b8814c33d03b444ada15f5a63bb8c.gifv)
+
