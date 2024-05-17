@@ -8,3 +8,4 @@
 
 ![![9d968cba-9d36-4ea6-b256-90341f254547](https://github.com/crowravenriko/crowravenriko/assets/139772125/bf82f5e9-a914-4b59-9565-39e344dc9fa6)
 ].
+  ![https://64.media.tumblr.com/cacf4bdc9dce7849be5a9a661118b320/d3c80e3805ca7023-55/s250x400/36db63a0351b8814c33d03b444ada15f5a63bb8c.gif]
