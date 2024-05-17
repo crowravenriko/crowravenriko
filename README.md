@@ -3,6 +3,7 @@
 ![](https://64.media.tumblr.com/569ad778d83083a647b06716cebd12b6/39e4db71d2fb827a-5a/s400x600/ada2ece19936378ba1a4ec3cb010613d67a45ff1.gifv)
 ![](https://64.media.tumblr.com/59186a098f84633047ea26426dd4239f/d79b386dd434d7d8-fb/s100x200/aed089921d40635be42a3fab8cbc782280ce05b0.gifv)
 ![](https://64.media.tumblr.com/41dfaa729a9ae0f3f13ec75e982daa2e/d79b386dd434d7d8-82/s250x400/a1f016a472f34942f7844799e68d417b23f9df3e.gifv)
+![](https://64.media.tumblr.com/1aa30537d48497402d8cae81496b97ee/d2d2e653ce9b8f37-9e/s100x200/c8e11e02d2da5daf81b0fc395093e0a60407f954.gifv)
 
 
 ![9d968cba-9d36-4ea6-b256-90341f254547](https://github.com/crowravenriko/crowravenriko/assets/139772125/ccbeacf8-0e38-4904-b029-8a3e74d58dcb)
